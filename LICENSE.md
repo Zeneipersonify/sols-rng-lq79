@@ -1,4 +1,4 @@
-#  
+#  sol's rng elite Scripts is the best sol's rng Script, featuring teleport and god mode. Safe and powerful for all your needs.
 
 
 
